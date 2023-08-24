@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### I'm Soumyajit Koley, a grphic designer and an aspiring SDE
+### I'm Soumyajit Koley, a graphic designer and an aspiring SDE
 
 
 # 💫 About Me:
